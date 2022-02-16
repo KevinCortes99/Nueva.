@@ -1,2 +1,2 @@
-# Nueva.
+# Nueva
 Love
